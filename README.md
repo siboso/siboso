@@ -2,4 +2,4 @@
 - 👀 I’m interested in financial economics.
 - 🌱 I’m currently learning from everybody.
 - 💞️ I’m looking to collaborate on innovation, trade, and Fintech.
-- 📫 You can my webpage (siboliu.com) or reach me at siboliu@hkbu.edu.hk.
+- 📫 Check my webpage (siboliu.com) or reach me at siboliu@hkbu.edu.hk.
